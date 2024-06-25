@@ -1,0 +1,3 @@
+- Hi, I’m @Bhumika003
+- I’m currently learning different computer languages 
+- You can reach me on bhumibindu@gmail.com
